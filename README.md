@@ -1,0 +1,2 @@
+# shotas-tamashi
+avicilot napaleonebi
